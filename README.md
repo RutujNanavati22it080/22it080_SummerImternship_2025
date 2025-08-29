@@ -1,5 +1,5 @@
 # 22it080_SummerImternship_2025
-## 7th sem Summer Internship (Total 5 weeks)
+## 7th sem Summer Internship (Total 6 weeks)
 ### How I found my internship
 One of my friend from surat told me about this internship by appify infotech.
 #Starting of the internship
